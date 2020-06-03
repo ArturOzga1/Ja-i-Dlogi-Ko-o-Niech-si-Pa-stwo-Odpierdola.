@@ -1,2 +1,2 @@
-# Ja-i-Dlogi-Ko-o-Niech-si-Pa-stwo-Odpierdola.
-(Lolo) Mieszanka tytoniu z Mocą Moc "THC" = T
+# Ja-i-Dlogi Lo-Lo.
+(Lolo) Mieszanka tytoniu z Moca "THC" = Tłusty Buuuuch.
